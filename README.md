@@ -1,2 +1,2 @@
 # khalo
-I have a pig cock 
+I have a big cock 
